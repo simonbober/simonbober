@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on bobers.
 - 📫 How to reach a bober? You can't.
 - 😄 Pronouns: He she it dat s muss mit
-- ⚡ Fun fact: not funny.
+- ⚡ Fun fact: Polish Dog
 
 <!---
 simonbober/simonbober is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
